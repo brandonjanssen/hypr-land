@@ -9,6 +9,7 @@
 ## 🌟 Preview
 
 ![image](https://user-images.githubusercontent.com/66816413/226121618-c0377a54-3653-46f3-bb05-76827623a0b8.png)
+![image](https://user-images.githubusercontent.com/66816413/226122124-54a14e18-b9e5-4230-856d-b00885eeb205.png)
 
 <br />
 
